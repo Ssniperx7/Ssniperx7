@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Ssniperx7
+- 👀 I’m interested in programing 
+- 🌱 I’m currently in high school
+- 💞️ I’m looking to be in a relationship
+- 📫 You can reach me by my instagram: slam_freak
